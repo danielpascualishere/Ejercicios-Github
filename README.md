@@ -1,2 +1,10 @@
 # Ejercicios-Github
 Repositorio (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 1 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 2 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 3 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 4 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 5 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 6 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 7 (Daniel Pascual)
+/home/dani/Escritorio/Descargas/IMG 8 (Daniel Pascual)
